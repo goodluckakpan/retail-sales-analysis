@@ -73,6 +73,3 @@ The Excel dashboard includes:
 **Goodluck Akpan** — Aspiring Data Analyst
 Open to internships, collaborations, and data projects.
 
-
-Reply **A or B** 👇😊
-
